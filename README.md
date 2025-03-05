@@ -34,3 +34,13 @@ I honestly don't mind any pronouns but prefer He/They.
   * SOUL EATER
 
     and lots more..! :,)
+
+## MUSIC TASTE :
+**I like artists such as...**
+* WILL WOOD
+* JACK OFF JILL
+* DEFTONES
+* MODERN BASEBALL
+* RADIOHEAD
+
+  and so on... ^_^
