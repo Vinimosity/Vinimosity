@@ -4,3 +4,5 @@
 **(art creds: @owll_zxyx)**
 
 Hie!! I'm *Vincent*, but I go by lots of nicknames like *Vin*, *Vince* etc! ^_^
+
+*I use basic dni citera, I'm really comfortable with anything expect for the obviously gross stuff.*
