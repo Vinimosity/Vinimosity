@@ -37,10 +37,6 @@ I honestly don't mind any pronouns but prefer He/They.
 
 ## MUSIC TASTE :
 **I like artists such as...**
-* WILL WOOD
-* JACK OFF JILL
-* DEFTONES
-* MODERN BASEBALL
-* RADIOHEAD
+WILL WOOD, JACK OFF JILL, DEFTONES, MODERN BASEBALL, RADIOHEAD
 
   and so on... ^_^
