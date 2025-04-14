@@ -19,13 +19,7 @@ I honestly don't mind any pronouns but prefer He/They.
 * ***FORSAKEN*** , CALAMITY CORP , HAPPYVILLE , BLOCK TALES , BLOOPERMARKET , ***ROBLOX ARGS*** , ***ROBLOX MYTHS***
 
   **But also things such as...**
-  * ***HELLO CHARLOTTE***
-  * SCP
-  * ALNST
-  * LOT / ENDZONE
-  * ***TLOU***
-  * ***MOB PSYCHO***
-  * SOUL EATER
+  * HELLO CHARLOTTE , SCP , LOT / ENDZONE , ***TLOU*** , ***TWD*** , MOB PSYCHO , SOUL EATER
 
     and lots more..! :,)
 
