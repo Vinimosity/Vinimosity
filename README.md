@@ -16,13 +16,7 @@ I honestly don't mind any pronouns but prefer He/They.
 
 ## INTERESTS :
 **My interests mainly consist of roblox related stuff such as...**
-* ***FORSAKEN***
-* CALAMITY CORP
-* HAPPYVILLE
-* BLOCK TALES
-* BLOOPERMARKET
-* ROBLOX ARGS
-* ***ROBLOX MYTHS***
+* ***FORSAKEN*** , CALAMITY CORP , HAPPYVILLE , BLOCK TALES , BLOOPERMARKET , ***ROBLOX ARGS*** , ***ROBLOX MYTHS***
 
   **But also things such as...**
   * ***HELLO CHARLOTTE***
