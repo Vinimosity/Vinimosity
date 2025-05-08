@@ -12,17 +12,17 @@ I mostly do not mind any pronouns but I would prefer He/They.
 
 ## BYI !!!
 * I usually do odd jokes such as touching ones, so lmk if it makes u uncomfy please!!
-* I don't use tonetags, lmk if you ever have a hard time understanding my tone in certain messages!
+* I don't use tonetags, lmk if you ever have a hard time understanding my tone when texting!
 * I'm a freak fr.. js lmk...
 
 ## INTERESTS :
 **My interests mainly consist of roblox related stuff such as...**
-* ***FORSAKEN*** , CALAMITY CORP , HAPPYVILLE , BLOCK TALES , BLOOPERMARKET , ***ROBLOX ARGS*** , ***ROBLOX MYTHS***
+* ***ROBLOX ARGS*** , ***ROBLOX MYTHS*** , FORSAKEN , BLOOPERMARKET , HAPPYVILLE & much more...
 
   **But also things such as...**
   * HELLO CHARLOTTE , SCP , LOT / ENDZONE , ***TLOU*** , ***TWD*** , MOB PSYCHO , SOUL EATER
 
-    and lots more..! :,)
+    
 
 ## MUSIC TASTE :
 **I like artists such as...**
