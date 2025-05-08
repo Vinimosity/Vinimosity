@@ -2,12 +2,12 @@
 
 ![Gjf5SYybMAAr05B](https://github.com/user-attachments/assets/9a469002-b877-4489-83dd-d98043dd67ef)
 
-***(art creds: @deepseawav on twt!!)***
+***(art creds: @ascii_txt on twt!!)***
 
-Hie!! I'm *Vincent*, but I go by lots of nicknames like *Vin*, **Vince** etc! ^_^ 
-I honestly don't mind any pronouns but prefer He/They. 
+Hie!! I'm **Noah** or Vincent, but I go by lots of nicknames such as *Vin*, **Vince** and more! ^_^ 
+I mostly do not mind any pronouns but I would prefer He/They. 
 
-*I use basic dni criteria, I'm literally comfortable with anything expect for the obviously gross stuff.*
+*I use basic dni criteria, I'm literally comfortable with anything as long as it isn't anything obviously gross.*
 
 
 ## BYI !!!
